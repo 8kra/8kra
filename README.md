@@ -1,1 +1,1 @@
-![cover](https://github.com/8kra/8kra/assets/115061491/750ae96f-8b51-4f7c-95f4-08d3d8fdddab)
+![COVER](https://github.com/8kra/8kra/assets/115061491/82f2b786-c614-40de-b721-c37036ac1be1)
